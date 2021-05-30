@@ -1,0 +1,1 @@
+I will take the patty and put it inside the 2 buns and inside it will be the vegetables like onion, tomatoes, lettuce then I put mayonees and a sauce packet beside the burger and it will be done.
